@@ -51,7 +51,7 @@ I'm a Data Science Enthusiast 🌱 eagerly stepping into the world of data scien
 
 - Email: manne.namrathasai@gmail.com ✉️
   
-- LinkedIn: https://www.linkedin.com/in/manne-namratha-sai-029🔗
+- LinkedIn:www.linkedin.com/in/manne-namratha-sai-029771259🔗
  
 - Instagram: https://www.instagram.com/mannenamratha/ 📸
   
